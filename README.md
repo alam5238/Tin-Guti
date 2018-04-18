@@ -8,6 +8,8 @@ Android game
 ![tinguti](2.jpg "")
 
 
-HappY Electronics :D 
-![tinguti](1.jpg "") :+1:
+
+![tinguti](1.jpg "")
+
+
 
